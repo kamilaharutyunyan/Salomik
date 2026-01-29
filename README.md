@@ -1,1 +1,1 @@
-# Salomik
+ankap tarer # Salomik - hasmik jaaannn akhr inchu?
